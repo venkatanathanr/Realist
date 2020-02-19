@@ -1,0 +1,2 @@
+# Realist
+believer in dualism
